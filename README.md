@@ -1,5 +1,5 @@
 ### About me :v:
-- Nickname: LiZ Hoang
+- Nickname: lzhoang2601
 - A Guy from: 2005
 - Sologan: If I Fail, I Try Again And Again, And Again.
 - An hackintosh man :apple:
